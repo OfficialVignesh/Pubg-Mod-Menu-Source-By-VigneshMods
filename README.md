@@ -1,6 +1,6 @@
 # Pubg-Mod-Menu-Source-By-VigneshMods
 
-[ Our Telegram Channel : @VigneshMods ]
+Our Telegram Channel : @VigneshMods
 
 » This Src Made By VigneshDevloper..
 
